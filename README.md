@@ -1,4 +1,4 @@
-# How-To-Organise-Shop-Shelves-In-Supermarkets-To-Display-Products
+# How To Organise Shop Shelves In Supermarkets To Display Products
 Merchandising products is critical to retail and other supermarket stores. Organising shop shelves encourage customers to buy more as it helps customers to find what they want. Apart from shelving, it is also necessary that supermarket display racks use the store layout optimally and decide where to place the products so that it enables purchases. There is a lot of thought put into where each item is to be positioned so that it lures the shoppers to buy more by getting their attention.
 
 Supermarket display shelf placement:
